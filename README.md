@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CstReal
+- 👀 I’m interested in Nothing c:
+- 🌱 I’m currently learning Javascript, Ruby
+- 📫 How to reach me ...
+- 😄 Pronouns: English, Spanish, Portugues
